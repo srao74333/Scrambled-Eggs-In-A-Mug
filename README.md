@@ -1,0 +1,1 @@
+Scrambled Eggs In A Mug is a delicious recipe that is very simple, easy, and efficient to make. The recipe requires a total of 2 main ingredients and some essential equipment.
